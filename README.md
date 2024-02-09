@@ -1,3 +1,3 @@
-- 👋 Hi, I’m fucking Tomazine
+- 👋 Hi, I’m Danger, I´m fucking Heisenberg!
 - I’m love Skateboard
 
